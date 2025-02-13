@@ -1,0 +1,1 @@
+# naokinda710.github.io
